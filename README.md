@@ -78,3 +78,4 @@ __Висновок__
 
 
 __Відео__
+https://drive.google.com/file/d/1LgLffyM461VHpZhsGUGZ4y4TPsz-89og/view?usp=sharing
